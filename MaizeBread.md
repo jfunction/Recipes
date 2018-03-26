@@ -3,6 +3,7 @@ Maize Bread
 Adapted from [here](https://www.youtube.com/watch?v=OrSAXzyH-8g)
 
 # Ingredients:
+
 ## Onion mix:
 * 1 small onion (white/brown)
 * 80g sundried tomato (perhaps olives would work)
@@ -10,9 +11,11 @@ Adapted from [here](https://www.youtube.com/watch?v=OrSAXzyH-8g)
 * 3 sprigs coriander (optional?)
 * 1 tbsp chutney/sweet chilli sauce (optional?)
 * salt/pepper to taste (optional?)
+
 ## Maize mix:
 * 1 cup maize meal (White Star Super Maize)
 * 1/2 cup boiling water
+
 ## Flour mix
 * 2 cup cake flour (not self raising)
 * 2 tsp instant dry yeast (1 sachet)
