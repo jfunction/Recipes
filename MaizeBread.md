@@ -31,7 +31,7 @@ Adapted from [here](https://www.youtube.com/watch?v=OrSAXzyH-8g)
 * a few smaller bowls (optional, useful for preparing stuff before hand)
 
 # Method:
-Dice the onion, set aside the (possibly chopped) sundried tomatoes and handful of washed spinach. Get the sweet chilli/chutney and corriander ready if you have some. 
+[Dice the onion](https://www.youtube.com/watch?v=dCGS067s0zo), set aside the (possibly chopped) sundried tomatoes and handful of washed spinach. Get the sweet chilli/chutney and corriander ready if you have some. 
 
 Grab a big (glass) mixing bowl which will hold the bread later. To this, sift the flour through a collander/meshy siev. To that add 2tsp instant dry yeast (1 sachet), 2tsp sugar, 1tsp salt and gently mix in a bit.
 You will need 200ml lukewarm water later so measure this out and put next to the bowl so long.
